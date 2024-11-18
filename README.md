@@ -1,1 +1,0 @@
-# NamJiSeok.github.io
